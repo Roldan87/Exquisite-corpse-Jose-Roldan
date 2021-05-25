@@ -14,3 +14,11 @@ At the top, I would throw the money in the air. Who will find it? I don't care.
 I am tall but not so tall.
 I am big but not so big.
 I am smart but, but no but.
+
+
+I am the darker brother.
+They send me to eat in the kitchen
+When company comes,
+But I laugh,
+And eat well,
+And grow strong.
