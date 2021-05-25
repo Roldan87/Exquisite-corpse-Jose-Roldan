@@ -26,3 +26,6 @@ But I laugh,
 And eat well,
 And grow strong.
 
+>I think you like food very much.
+>Whenever  you get food you eat it as soon as.
+>So, you grow very well.
