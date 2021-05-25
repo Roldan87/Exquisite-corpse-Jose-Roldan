@@ -8,4 +8,6 @@ Well that's all doom and gloom. I rather aim for the moon!
 Whatever dime I have, have it, it is yours.
 For all I wish, is to spend my final waking moments one with nature.
 
-
+I would take all my money and climb a mountain no other climbers think about. 
+At the top, I would throw the money in the air. Who will find it? I don't care. 
+ 
